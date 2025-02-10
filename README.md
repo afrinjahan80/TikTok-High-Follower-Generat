@@ -2,7 +2,7 @@
 "Want to increase TikTok followers fast? Then follow us.
 What is TikTok Follower Generation and How Does It Work?
 
-[👉CLICK HERE TO GET GENERAT HIGH TIKTOK FOLLOWERS[(https://sites.google.com/view/tiktok-high-followers-generat/home)
+[👉CLICK HERE TO GET GENERAT HIGH TIKTOK FOLLOWERS](https://sites.google.com/view/tiktok-high-followers-generat/home)
 
 [👉CLICK HERE TO GET GENERAT HIGH TIKTOK FOLLOWERS](https://sites.google.com/view/tiktok-high-followers-generat/home)
 
